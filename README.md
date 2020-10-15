@@ -1,2 +1,1 @@
-# discord-stickers
-🤐🤫😶
+# Discord Stickers 🤫
